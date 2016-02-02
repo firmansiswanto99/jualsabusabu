@@ -1,0 +1,2 @@
+# jualsabusabu
+tempat penjualan aman
